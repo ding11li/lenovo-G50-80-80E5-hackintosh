@@ -1,0 +1,1 @@
+# lenovo-G50-80-80E5-hackintosh
